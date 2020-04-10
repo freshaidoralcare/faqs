@@ -1,2 +1,11 @@
-# faqs
-Fresh Aid Oral Care frequently asked questions
+# Fresh Aid Oral Care Frequently Asked Questions
+
+You can find more FAAQs [here](https://freshaidhelp.freshdesk.com/a/solutions/categories/61000077389/folders/61000113508).
+
+Here's what you need to know about resh Aid oral care. We're not against Fluoride but we do advocate for safe and gentle natural products. We're not telling anyone to choose but we're giving people a choice especially if they're sensitive to fluoride or harsh chemicals.
+
+### Natural Toothpaste
+
+Fresh Aid toothpaste is pH balanced and non fluoride. I you believe fluoride is bad for you this is the best non fluoride toothpaste you can pick up.
+
+It's great at fighting plaque and plaque germs that cause dry mouth, smelly saliva and bad breath.
